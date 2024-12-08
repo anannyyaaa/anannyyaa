@@ -1,4 +1,4 @@
-# anannyyaa
+# anannyyaaa
 MY PERSONAL REPOSITORY
 HI ! 
 I AM A TECH ENTHUSIAST 
